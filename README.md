@@ -1,5 +1,5 @@
 # Growtopia-Kulo-Proxy-Cracked (FREE) / BYPASS LOGIN SYSTEM
-Kulo Proxy Cracked (FREE)
+Kulo Proxy Cracked
 
 ![image](https://github.com/Evorrtez/Growtopia-Kulo-Proxy-Crack-Bypass-Key-system-/assets/161077538/fe8b64b4-35c9-4723-858c-9a6077ece36f)
 
